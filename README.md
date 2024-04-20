@@ -1,1 +1,1 @@
-Hi, my name is Leonardo, I love programing and share knowledge 
+Hi, my name is Leonardo, I love programing and sharing knowledge 
